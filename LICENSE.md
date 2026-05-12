@@ -1,4 +1,4 @@
-# 
+# new nft flip bot | mint-detection + royalty-calculator offers the most advanced nft flip bot, with mint-detection and royalty-calculator. Ideal for professional NFT traders and
 
 
 
